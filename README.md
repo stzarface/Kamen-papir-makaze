@@ -1,0 +1,2 @@
+# Kamen-papir-makaze
+domaci
